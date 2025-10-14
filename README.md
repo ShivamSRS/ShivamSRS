@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shivamraisharma@gmail.com**
 
-- ⚡ Fun fact **I like playing Table Tennis**
+- ⚡ Fun fact **I like Singing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
